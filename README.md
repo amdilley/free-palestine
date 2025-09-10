@@ -1,1 +1,1 @@
-# free-palestine
+# 🇵🇸 Free Palestine
